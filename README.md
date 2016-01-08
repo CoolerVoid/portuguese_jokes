@@ -45,6 +45,8 @@ As vezes Jesus se disfarça de gente que usa Windows 8 e Access só para testar 
 
 Gente que comenta para mim que foi assaltado no Rock in Rio... nem é novidade... vi bem antes o preço do ingresso.
 
+Eu finalmente estou curado da minha ansiedade, mal posso esperar para me darem os parabéns.
+
 Então galera sou contra qualquer tipo de violência mas ficaria muito feliz de ver hoje umas pancadas de chuva.
 
 Sábado eu sou igual o SAMU: Se me ligar eu atendo, mas talvez você morra me esperando.
