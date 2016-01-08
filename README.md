@@ -4,11 +4,19 @@ random sarcasm and jokes at portuguese language
 
 ---
 
+Uma professora de matemática Htinha para resolver os problemas da minha vida​
+
 10.000 caracteres eu escrevo tudo que aconteceu de bom na minha vida e ainda sobra 10.000  caracteres
 
 Alguém chama a polícia. Tá tendo um crime aqui, eu tô matando a fome.
 
+Amor é uma coisa tão difícil de achar que vou começar a chamá-lo de sinal da VIVO.
+
 Pareço ser legal e normal, mas tenho um DB com SQLite para cada pessoa onde armazeno as conversas(e-mails,gtalk...) e fico alimentando meus codes de NLP+naive bayes a fim de entender e classificar os sentimentos dessas pessoas.
+
+Matar a fome comendo salada, na boa é matar com requintes de crueldade.
+
+A economia do Brasil tá igual minha auto estima: Caindo a cada dia.
 
 Você passa 8 horas escrevendo códigos ai nos testes surge vários bugs , equivalente quando você lava a louça e alguém coloca alguma coisa na pia.
 
