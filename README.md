@@ -1,5 +1,5 @@
 # portuguese_jokes
-random sarcasm jokes at portuguese language
+random sarcasm and jokes at portuguese language
 
 
 ---
