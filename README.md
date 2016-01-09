@@ -4,6 +4,8 @@ random sarcasm and jokes at portuguese language
 
 ---
 
+Nem precisa saber química para sacar a reação de algumas pessoas quando você fala não.
+
 Uma professora de matemática Htinha para resolver os problemas da minha vida​
 
 10.000 caracteres eu escrevo tudo que aconteceu de bom na minha vida e ainda sobra 10.000  caracteres
