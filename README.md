@@ -281,3 +281,13 @@ Nesse ano de 2015, gostaria de agradecer a quem sempre esteve do meu lado nos mo
 Htinha você não é Comic Con + 20ver sua linda
 
 Ir dessa para melhor deveria ser metáfora para deixar de programar em Java e começar a programar em C++.
+
+Para gerir a casa do vizinho, preciso apenas de um Real e ainda me sobra dinheiro
+
+Comigo ou "sem-migo", vou em frente
+
+"Foi um jogo dificil à beira do precípio, mas com a ajuda de Deus demos o passo em frente"
+
+"Prognóstico? Só depois do jogo"
+
+Mais vale uma mão inchada do que uma enxada na mão
