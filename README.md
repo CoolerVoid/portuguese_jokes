@@ -3,6 +3,7 @@ random sarcasm and jokes at portuguese language
 
 
 ---
+Ae comprei o presente do dia doas namorados para minha namorada, agora só falta arrumar a namorada.
 
 Nem precisa saber química para sacar a reação de algumas pessoas quando você fala não.
 
