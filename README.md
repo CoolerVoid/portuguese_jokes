@@ -5,7 +5,7 @@ random sarcasm and jokes at portuguese language
 ---
 Pode jogar pedra em mim, com elas um dia vou construir um firewall.
 
-Tem gente que acha que sou GPU com overclock para ficar me torrando.G
+Tem gente que acha que sou GPU com overclock para ficar me torrando.
 
 Meu raciocínio antes do almoço fica mais lento que o Internet Explorer.
 
