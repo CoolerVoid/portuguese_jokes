@@ -3,6 +3,20 @@ random sarcasm and jokes at portuguese language
 
 
 ---
+Pode jogar pedra em mim, com elas um dia vou construir um firewall.
+
+Meu raciocínio antes do almoço fica mais lento que o Internet Explorer.
+
+A cada novo dia você tem uma nova chance de estragar tudo de novo.
+
+Sono quando você está hackiando é igual amigo que pede dinheiro emprestado. Só aparece em horas erradas...
+
+Mulheres que gostam de homem de atitude, não querendo me gabar não mas hoje mesmo guardei as louças e limpei a pia, tudo isso enquanto compilava um kernel 
+
+Usar fones de ouvido é tipo ficar em "modo avião" da vida real.
+
+Me sentindo o Marty McFly voltando 1 hora no tempo, esse horário de inverno prova que o Brasil é um país atrasado.
+
 Ae comprei o presente do dia doas namorados para minha namorada, agora só falta arrumar a namorada.
 
 Nem precisa saber química para sacar a reação de algumas pessoas quando você fala não.
