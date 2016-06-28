@@ -5,7 +5,11 @@ random sarcasm and jokes at portuguese language
 ---
 Pode jogar pedra em mim, com elas um dia vou construir um firewall.
 
+Todo mundo dizendo que eu sou o cara mais cético que existe, mas eu duvido disso.
+
 Tem gente que acha que sou GPU com overclock para ficar me torrando.
+
+Lembrando da época em que toda mulher queria me pegar, isso mesmo saudades de quando era recém-nascido.
 
 Meu raciocínio antes do almoço fica mais lento que o Internet Explorer.
 
@@ -16,6 +20,10 @@ Sono quando você está hackiando é igual amigo que pede dinheiro emprestado. S
 Mulheres que gostam de homem de atitude, não querendo me gabar não mas hoje mesmo guardei as louças e limpei a pia, tudo isso enquanto compilava um kernel 
 
 Usar fones de ouvido é tipo ficar em "modo avião" da vida real.
+
+Mosquito mais perigoso que zika, chicungunha, dengue é chamado bovespa, principalmente para quem sai alavancando o que não tem.
+
+Ta na moda tatoo e tals, a única tatuagem que eu tive na vida foi no meu braço. Tinha a forma de um chinelo e durou uns dias, artista foi minha mãe.
 
 Me sentindo o Marty McFly voltando 1 hora no tempo, esse horário de inverno prova que o Brasil é um país atrasado.
 
