@@ -5,6 +5,8 @@ random sarcasm and jokes at portuguese language
 ---
 Pode jogar pedra em mim, com elas um dia vou construir um firewall.
 
+Hoje faz exatamente oito anos que me disseram que sou rancoroso.
+
 Todo mundo dizendo que eu sou o cara mais cético que existe, mas eu duvido disso.
 
 Tem gente que acha que sou GPU com overclock para ficar me torrando.
