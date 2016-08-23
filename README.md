@@ -9,6 +9,12 @@ Hoje faz exatamente oito anos que me disseram que sou rancoroso.
 
 Todo mundo dizendo que eu sou o cara mais cético que existe, mas eu duvido disso.
 
+Os amores de hoje duram menos que a licença do MATLAB na versão trial.
+
+Tenho inveja da vírgula que precisa de espaço e ninguém fica perguntando o porquê...
+
+O Java é mais interessado em se manter atualizado do que muita gente por ae...
+
 Tem gente que acha que sou GPU com overclock para ficar me torrando.
 
 Lembrando da época em que toda mulher queria me pegar, isso mesmo saudades de quando era recém-nascido.
