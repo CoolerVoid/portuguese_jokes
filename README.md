@@ -23,6 +23,8 @@ Meu raciocínio antes do almoço fica mais lento que o Internet Explorer.
 
 A cada novo dia você tem uma nova chance de estragar tudo de novo.
 
+Se eu fosse um X-Men meu super poder seria ficar invisível quando as pessoas não precisam de mim.
+
 Sono quando você está hackiando é igual amigo que pede dinheiro emprestado. Só aparece em horas erradas...
 
 Mulheres que gostam de homem de atitude, não querendo me gabar não mas hoje mesmo guardei as louças e limpei a pia, tudo isso enquanto compilava um kernel 
