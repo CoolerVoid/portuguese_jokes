@@ -13,6 +13,8 @@ Os amores de hoje duram menos que a licença do MATLAB na versão trial.
 
 Tenho inveja da vírgula que precisa de espaço e ninguém fica perguntando o porquê...
 
+Se gripe é algo mutante a minha seria um X-men, sendo especifico o Professor X(causando uma dor de cabeça muito doida).
+
 O Java é mais interessado em se manter atualizado do que muita gente por ae...
 
 Tem gente que acha que sou GPU com overclock para ficar me torrando.
@@ -22,6 +24,8 @@ Lembrando da época em que toda mulher queria me pegar, isso mesmo saudades de q
 Meu raciocínio antes do almoço fica mais lento que o Internet Explorer.
 
 A cada novo dia você tem uma nova chance de estragar tudo de novo.
+
+Fascinante como o pessoal do hospital fica bravo quando você desliga uns aparelhos da tomada para carregar o celular.
 
 Se eu fosse um X-Men meu super poder seria ficar invisível quando as pessoas não precisam de mim.
 
