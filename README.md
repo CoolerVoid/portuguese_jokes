@@ -3,6 +3,9 @@ random sarcasm and jokes at portuguese language
 
 
 ---
+
+Corpus Christi já foi, lembrando que na segunda-feira tem Corpus Triste.
+
 Pode jogar pedra em mim, com elas um dia vou construir um firewall.
 
 Hoje faz exatamente oito anos que me disseram que sou rancoroso.
