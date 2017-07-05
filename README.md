@@ -4,6 +4,12 @@ random sarcasm and jokes at portuguese language
 
 ---
 
+Não xaveco a mulherada no frio, porque minha mãe disse que no frio quem recebe muito gelo pode ter hipotermia.
+
+Esta tão frio que fui abrir o armário do meu quarto e tinha um Pinguin(tux) lá dentro.
+
+Hoje ninguém vai estragar o meu dia, eu mesmo faço isso sozinho.
+
 Corpus Christi já foi, lembrando que na segunda-feira tem Corpus Triste.
 
 Pode jogar pedra em mim, com elas um dia vou construir um firewall.
