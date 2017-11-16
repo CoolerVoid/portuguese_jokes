@@ -10,29 +10,57 @@ Esta tão frio que fui abrir o armário do meu quarto e tinha um Pinguin(tux) l�
 
 Hoje ninguém vai estragar o meu dia, eu mesmo faço isso sozinho.
 
+Dinheiro não é grão de café, mas eu torro.
+
+Javeiros são iguais pombos: Estão por todo lugar.
+
+Na boa, massinha de modelar é mais legal do que muita gente por aí.
+
+Adivinha quem acordou disposto a mudar? Isso mesmo, alguma empresa de frete por aí.​
+
 Corpus Christi já foi, lembrando que na segunda-feira tem Corpus Triste.
 
 Pode jogar pedra em mim, com elas um dia vou construir um firewall.
 
+As mulheres querem um homem perfeito, o problema se for ver  é que o homem perfeito quer também um homem perfeito.
+
 Hoje faz exatamente oito anos que me disseram que sou rancoroso.
+
+Hoje ao almoçar no shopping encontrei uma fonte da juventude onde estava escrito "vaga para idoso", parou um carro e quando o motorista desceu ele era jovem.
 
 Todo mundo dizendo que eu sou o cara mais cético que existe, mas eu duvido disso.
 
 Os amores de hoje duram menos que a licença do MATLAB na versão trial.
 
+Indecisão de sentimentos é tenso, nunca sei se estou com mais fome ou com mais sono.
+
+O sono que habita em mim é caseiro, não sai por nada.
+
 Tenho inveja da vírgula que precisa de espaço e ninguém fica perguntando o porquê...
+
+Queria ser um gnomo, pois gnomo não existe... se fosse heroi seria o desgraçaman
 
 Se gripe é algo mutante a minha seria um X-men, sendo especifico o Professor X(causando uma dor de cabeça muito doida).
 
 O Java é mais interessado em se manter atualizado do que muita gente por ae...
 
+Segunda-feira é igual operadora de celular: Reclamar não resolve nada.
+
+Não seja aquele aplicativo que não pode ser excluído do celular na vida das pessoas.
+
 Tem gente que acha que sou GPU com overclock para ficar me torrando.
+
+Tem sentimentos que a gente tem que fazer igual faz com Trident, melhor esconder do que dar pra alguém.
 
 Lembrando da época em que toda mulher queria me pegar, isso mesmo saudades de quando era recém-nascido.
 
 Meu raciocínio antes do almoço fica mais lento que o Internet Explorer.
 
 A cada novo dia você tem uma nova chance de estragar tudo de novo.
+
+Sua opinião é igual o número do criança esperança: não ligo
+
+A segunda coisa que eu mais odeio é gente esquecida a primeira eu não lembro
 
 Fascinante como o pessoal do hospital fica bravo quando você desliga uns aparelhos da tomada para carregar o celular.
 
@@ -114,6 +142,8 @@ Se aparecesse dinheiro na minha vida assim como aparecem problemas, o Larry Elli
 Pesadelo na minha concepção , é uma amostra da vida que nem nos seus sonhos você pode ser feliz.
 
 Hoje resolvi abrir mão dos meus sonhos, tá cada dia mais tenso ter um dinossauro.
+
+seja alguém que dê sonhos para as pessoas, então tenho que ser padeiro ?
 
 Meu feriado está meio político em época de campanha , promete muito mas a gente sabe que não vai cumprir.
 
@@ -198,6 +228,8 @@ Já eu não tenho tempo nem energia nem dinheiro... ahhahahuihua
 sabe paciência é algo que eu nunca perco até porque não tem como perder algo que nunca tive.
 
 Na boa cansei de correr atrás dos meus sonhos agora vou me valorizar, os sonhos é que corram atrás de mim, vou aproveitar que a padaria agora tem delivery.
+
+Enquanto houver trigo e açúcar, haverá sonhos.
 
 Adivinha quem levantou com o gás todo? Isso mesmo, alguma garrafa de Tubaina.
 
